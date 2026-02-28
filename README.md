@@ -1,30 +1,11 @@
-## # 
+<div align="center">
 
-
-
-
-
-
-
-
-
-
-
-Приветики я Джон
-
-
-Эта штука тестируется, поэтому пока мало что написано
-<!--
-**John-Fler/John-Fler** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=10&color=A6A6A6&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Hello;I'm+John+Fler" width="70%" />
+<br><br>
+<pre>
+    💻 Сижу на компьютере • Ноутбук 
+    📖 Читаю фанфики и всякое
+    🎮 Музыка • Игры • Аниме 
+</pre>
+<br>
+<img width="1062" height="718" alt="image" src="https://github.com/user-attachments/assets/9435ed82-5bbb-45c4-af55-b53ed2517cb3" /> width="25%" align="down" />
