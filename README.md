@@ -2,11 +2,11 @@
 
 
 <pre> 
-        Hi, I'm John Air Fler!
+       Hi, I'm John Air Fler!
     
-         ❤
+     ❤
         
-          The first section is what I love     
+           The first section is what I love     
         
     • Anime — Steins;Gate / Trinity Blood / Moriarty the Patriot / Sailor Moon / 
           Sonic X / Powerpuff Girls Z / Detecive Conan / Lupin The Third 
