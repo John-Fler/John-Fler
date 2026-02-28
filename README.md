@@ -4,10 +4,9 @@
 <pre> 
         Hi, I'm John Air Fler!
     
-        ❤
+         ❤
         
-          The first section is what I love    
-           ────────────────────────⋆⋅☆⋅⋆────────────────────────   
+          The first section is what I love     
         
     • Anime — Steins;Gate / Trinity Blood / Moriarty the Patriot / Sailor Moon / 
           Sonic X / Powerpuff Girls Z / Detecive Conan / Lupin The Third 
@@ -30,7 +29,7 @@
 
        
                The second section is my favorite characters   
-           ────────────────────────⋆⋅☆⋅⋆────────────────────────   
+
         
           • My favorite characters  — Doctor Tomoe / Doctor Starline / Professor Utonium / Okabe Rintaro / Tails / William Afton 
                 Sherlock Holmes / Abel Nightroad / Shinichi Kudo / Handsome Jack / Joey Drew / Sammy Lawrense / Thomas Connor
@@ -39,7 +38,14 @@
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
         
                The third section is social media or something like that
-           ────────────────────────⋆⋅☆⋅⋆────────────────────────   
+
+        
+          • My social media  — 
+        Vk https://vk.com/investigation.detective
+        Discord investigation.detective
+        Telegram https://t.me/investigation_detective
+        Roblox https://www.roblox.com/users/4274429605/profile
+    
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
 </pre>
 <br>
