@@ -23,14 +23,21 @@
       and more
         
      • Games —  Sonic / Powerpuff Girls / Sherlock / Fnaf and Fnac / Identity V / DDLC / Undertale and Deltarune 
-        Saints Row  / Borderlands / Little Nightmares / Steins;Gate / Bendy
+        Saints Row  / Borderlands / Little Nightmares / Steins;Gate / Bendy / Overwatch
       and more
+        
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
 
        
                The second section is my favorite characters   
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
+        
+          • My favorite characters  — Doctor Tomoe / Doctor Starline / Professor Utonium / Okabe Rintaro / Tails / William Afton 
+                Sherlock Holmes / Abel Nightroad / Shinichi Kudo / Handsome Jack / Joey Drew / Sammy Lawrense / Thomas Connor
+                Chujin / Asriel / Gaster / Tuxedo Mask (Mamoru Chiba) / Cassidy (McCree) / Orpheus, Kreacher and Naib (IdenV)
+    
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
+        
                The third section is social media or something like that
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
