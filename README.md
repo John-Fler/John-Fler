@@ -8,4 +8,4 @@
     🎮 Музыка • Игры • Аниме 
 </pre>
 <br>
-<img width="1062" height="718" alt="image" src="https://github.com/user-attachments/assets/9435ed82-5bbb-45c4-af55-b53ed2517cb3" /> width="25%" align="down" />
+<img width="1062" height="718" alt="image" src="https://github.com/user-attachments/assets/9435ed82-5bbb-45c4-af55-b53ed2517cb3" />
