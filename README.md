@@ -8,22 +8,22 @@
         
            𝑻𝒉𝒆 𝒇𝒊𝒓𝒔𝒕 𝒔𝒆𝒄𝒕𝒊𝒐𝒏 𝒊𝒔 𝒘𝒉𝒂𝒕 𝑰 𝒍𝒐𝒗𝒆     
         
-    • Anime — Steins;Gate / Trinity Blood / Moriarty the Patriot / Sailor Moon / 
-          Sonic X / Powerpuff Girls Z / Detecive Conan / Lupin The Third 
-      and more
+    • ᴀɴɪᴍᴇ — sᴛᴇɪɴs;ɢᴀᴛᴇ / ᴛʀɪɴɪᴛʏ ʙʟᴏᴏᴅ / ᴍᴏʀɪᴀʀᴛʏ ᴛʜᴇ ᴘᴀᴛʀɪᴏᴛ / sᴀɪʟᴏʀ ᴍᴏᴏɴ / 
+          sᴏɴɪᴄ x / ᴘᴏᴡᴇʀᴘᴜꜰꜰ ɢɪʀʟs ᴢ / ᴅᴇᴛᴇᴄɪᴠᴇ ᴄᴏɴᴀɴ / ʟᴜᴘɪɴ ᴛʜᴇ ᴛʜɪʀᴅ 
+      ᴀɴᴅ ᴍᴏʀᴇ
     
-    • Movie — Sherlock (more version) / Fnaf the Movie / John Wick / Sonic the Movie / Doctor Strange
-      and more
+    • ᴍᴏᴠɪᴇ — sʜᴇʀʟᴏᴄᴋ (ᴍᴏʀᴇ ᴠᴇʀsɪᴏɴ) / ꜰɴᴀꜰ ᴛʜᴇ ᴍᴏᴠɪᴇ / ᴊᴏʜɴ ᴡɪᴄᴋ / sᴏɴɪᴄ ᴛʜᴇ ᴍᴏᴠɪᴇ / ᴅᴏᴄᴛᴏʀ sᴛʀᴀɴɢᴇ
+      ᴀɴᴅ ᴍᴏʀᴇ
         
-    • Serials —  Sherlock / Interns / Downton Abbey / Doctor Who
-      and more
+    • sᴇʀɪᴀʟs —  sʜᴇʀʟᴏᴄᴋ / ɪɴᴛᴇʀɴs / ᴅᴏᴡɴᴛᴏɴ ᴀʙʙᴇʏ / ᴅᴏᴄᴛᴏʀ ᴡʜᴏ
+      ᴀɴᴅ ᴍᴏʀᴇ
         
-    • Cartoons — Sonic / Powerpuff Girls / She-Ra and the Princesses of Power / Hotel Hazbin and Helluva Boss / LadyBug
-      and more
+    • ᴄᴀʀᴛᴏᴏɴs — sᴏɴɪᴄ / ᴘᴏᴡᴇʀᴘᴜꜰꜰ ɢɪʀʟs / sʜᴇ-ʀᴀ ᴀɴᴅ ᴛʜᴇ ᴘʀɪɴᴄᴇssᴇs ᴏꜰ ᴘᴏᴡᴇʀ / ʜᴏᴛᴇʟ ʜᴀᴢʙɪɴ ᴀɴᴅ ʜᴇʟʟᴜᴠᴀ ʙᴏss / ʟᴀᴅʏʙᴜɢ
+      ᴀɴᴅ ᴍᴏʀᴇ
         
-     • Games —  Sonic / Powerpuff Girls / Sherlock / Fnaf and Fnac / Identity V / DDLC / Undertale and Deltarune 
-        Saints Row  / Borderlands / Little Nightmares / Steins;Gate / Bendy / Overwatch
-      and more
+     • ɢᴀᴍᴇs —  sᴏɴɪᴄ / ᴘᴏᴡᴇʀᴘᴜꜰꜰ ɢɪʀʟs / sʜᴇʀʟᴏᴄᴋ / ꜰɴᴀꜰ ᴀɴᴅ ꜰɴᴀᴄ / ɪᴅᴇɴᴛɪᴛʏ ᴠ / ᴅᴅʟᴄ / ᴜɴᴅᴇʀᴛᴀʟᴇ ᴀɴᴅ ᴅᴇʟᴛᴀʀᴜɴᴇ 
+        sᴀɪɴᴛs ʀᴏᴡ  / ʙᴏʀᴅᴇʀʟᴀɴᴅs / ʟɪᴛᴛʟᴇ ɴɪɢʜᴛᴍᴀʀᴇs / sᴛᴇɪɴs;ɢᴀᴛᴇ / ʙᴇɴᴅʏ / ᴏᴠᴇʀᴡᴀᴛᴄʜ
+      ᴀɴᴅ ᴍᴏʀᴇ
         
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
 
@@ -31,20 +31,20 @@
                𝑻𝒉𝒆 𝒔𝒆𝒄𝒐𝒏𝒅 𝒔𝒆𝒄𝒕𝒊𝒐𝒏 𝒊𝒔 𝒎𝒚 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔   
 
         
-          • My favorite characters  — Doctor Tomoe / Doctor Starline / Professor Utonium / Okabe Rintaro / Tails / William Afton 
-                Sherlock Holmes / Abel Nightroad / Shinichi Kudo / Handsome Jack / Joey Drew / Sammy Lawrense / Thomas Connor
-                Chujin / Asriel / Gaster / Tuxedo Mask (Mamoru Chiba) / Cassidy (McCree) / Orpheus, Kreacher and Naib (IdenV)
+          • ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ᴄʜᴀʀᴀᴄᴛᴇʀs  — ᴅᴏᴄᴛᴏʀ ᴛᴏᴍᴏᴇ / ᴅᴏᴄᴛᴏʀ sᴛᴀʀʟɪɴᴇ / ᴘʀᴏꜰᴇssᴏʀ ᴜᴛᴏɴɪᴜᴍ / ᴏᴋᴀʙᴇ ʀɪɴᴛᴀʀᴏ / ᴛᴀɪʟs / ᴡɪʟʟɪᴀᴍ ᴀꜰᴛᴏɴ 
+                sʜᴇʀʟᴏᴄᴋ ʜᴏʟᴍᴇs / ᴀʙᴇʟ ɴɪɢʜᴛʀᴏᴀᴅ / sʜɪɴɪᴄʜɪ ᴋᴜᴅᴏ / ʜᴀɴᴅsᴏᴍᴇ ᴊᴀᴄᴋ / ᴊᴏᴇʏ ᴅʀᴇᴡ / sᴀᴍᴍʏ ʟᴀᴡʀᴇɴsᴇ / ᴛʜᴏᴍᴀs ᴄᴏɴɴᴏʀ
+                ᴄʜᴜᴊɪɴ / ᴀsʀɪᴇʟ / ɢᴀsᴛᴇʀ / ᴛᴜxᴇᴅᴏ ᴍᴀsᴋ (ᴍᴀᴍᴏʀᴜ ᴄʜɪʙᴀ) / ᴄᴀssɪᴅʏ (ᴍᴄᴄʀᴇᴇ) / ᴏʀᴘʜᴇᴜs, ᴋʀᴇᴀᴄʜᴇʀ ᴀɴᴅ ɴᴀɪʙ (ɪᴅᴇɴᴠ)
     
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
         
                𝑻𝒉𝒆 𝒕𝒉𝒊𝒓𝒅 𝒔𝒆𝒄𝒕𝒊𝒐𝒏 𝒊𝒔 𝒔𝒐𝒄𝒊𝒂𝒍 𝒎𝒆𝒅𝒊𝒂 𝒐𝒓 𝒔𝒐𝒎𝒆𝒕𝒉𝒊𝒏𝒈 𝒍𝒊𝒌𝒆 𝒕𝒉𝒂𝒕
 
         
-          • My social media  — 
-        Vk https://vk.com/investigation.detective
-        Discord investigation.detective
-        Telegram https://t.me/investigation_detective
-        Roblox https://www.roblox.com/users/4274429605/profile
+          • ᴍʏ sᴏᴄɪᴀʟ ᴍᴇᴅɪᴀ — 
+        ᴠᴋ: https://vk.com/investigation.detective
+        ᴅɪsᴄᴏʀᴅ:  investigation.detective
+        ᴛᴇʟᴇɢʀᴀᴍ:  https://t.me/investigation_detective
+          ʀᴏʙʟᴏx:  https://www.roblox.com/users/4274429605/profile
     
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
 </pre>
