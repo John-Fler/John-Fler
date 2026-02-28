@@ -6,7 +6,7 @@
     
      ❤
         
-           The first section is what I love     
+           𝑻𝒉𝒆 𝒇𝒊𝒓𝒔𝒕 𝒔𝒆𝒄𝒕𝒊𝒐𝒏 𝒊𝒔 𝒘𝒉𝒂𝒕 𝑰 𝒍𝒐𝒗𝒆     
         
     • Anime — Steins;Gate / Trinity Blood / Moriarty the Patriot / Sailor Moon / 
           Sonic X / Powerpuff Girls Z / Detecive Conan / Lupin The Third 
@@ -28,7 +28,7 @@
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
 
        
-               The second section is my favorite characters   
+               𝑻𝒉𝒆 𝒔𝒆𝒄𝒐𝒏𝒅 𝒔𝒆𝒄𝒕𝒊𝒐𝒏 𝒊𝒔 𝒎𝒚 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔   
 
         
           • My favorite characters  — Doctor Tomoe / Doctor Starline / Professor Utonium / Okabe Rintaro / Tails / William Afton 
@@ -37,7 +37,7 @@
     
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
         
-               The third section is social media or something like that
+               𝑻𝒉𝒆 𝒕𝒉𝒊𝒓𝒅 𝒔𝒆𝒄𝒕𝒊𝒐𝒏 𝒊𝒔 𝒔𝒐𝒄𝒊𝒂𝒍 𝒎𝒆𝒅𝒊𝒂 𝒐𝒓 𝒔𝒐𝒎𝒆𝒕𝒉𝒊𝒏𝒈 𝒍𝒊𝒌𝒆 𝒕𝒉𝒂𝒕
 
         
           • My social media  — 
