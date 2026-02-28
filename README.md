@@ -16,9 +16,12 @@
     • Serials —  Sherlock / Interns / Downton Abbey / Doctor Who
       and more
         
-    • Cartoons — Sonic / Powerpuff Girls / She-Ra and the Princesses of Power / Hotel Hazbin and Helluva Boss 
+    • Cartoons — Sonic / Powerpuff Girls / She-Ra and the Princesses of Power / Hotel Hazbin and Helluva Boss / LadyBug
       and more
         
+     • Games —  Sonic / Powerpuff Girls / Sherlock / Fnaf and Fnac / Identity V / DDLC / Undertale and Deltarune 
+        Saints Row  / Borderlands / Little Nightmares / Steins;Gate / Bendy
+      and more
 </pre>
 <br>
 <br><br>
