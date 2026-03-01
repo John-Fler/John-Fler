@@ -50,7 +50,5 @@
     <img width="500" height="685" alt="image" src="https://github.com/user-attachments/assets/8889ca70-f1e8-4e3e-8251-0206bc4c91c8" />
 </pre>
 <br>
-<br><br>
-<pre> 
 
 
