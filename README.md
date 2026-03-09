@@ -42,7 +42,7 @@
           • ᴍʏ sᴏᴄɪᴀʟ ᴍᴇᴅɪᴀ — 
         ᴠᴋ: https://vk.com/investigation.detective
         ᴅɪsᴄᴏʀᴅ:  investigation.detective
-        ᴛᴇʟᴇɢʀᴀᴍ:  https://t.me/investigation_detective
+        ᴛᴇʟᴇɢʀᴀᴍ:  https://t.me/investigation_detective \ @investigation_detective
           ʀᴏʙʟᴏx:  https://www.roblox.com/users/4274429605/profile
     
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
