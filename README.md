@@ -40,9 +40,9 @@
 
         
           • ᴍʏ sᴏᴄɪᴀʟ ᴍᴇᴅɪᴀ — 
-        ᴠᴋ: https://vk.com/investigation.detective (Пишем, если мы знакомы или причины с которым я согласился)
-        ᴅɪsᴄᴏʀᴅ:  investigation.detective (Пишем, если мы знакомы или причины с которым я согласился)
-        ᴛᴇʟᴇɢʀᴀᴍ:  https://t.me/investigation_detective (Пишем, если мы знакомы или причины с которым я согласился)
+        ᴠᴋ: https://vk.com/investigation.detective
+        ᴅɪsᴄᴏʀᴅ:  investigation.detective 
+        ᴛᴇʟᴇɢʀᴀᴍ:  https://t.me/investigation_detective 
           ʀᴏʙʟᴏx:  https://www.roblox.com/users/4274429605/profile
     
            ────────────────────────⋆⋅☆⋅⋆────────────────────────   
